@@ -11,4 +11,4 @@ vitor.moreno.silva@escola.pr.gov.br
 
 @vitinzk
 
-![descrição do GIF](https://media1.tenor.com/m/-5vNnNl9DtsAAAAC/grau-vl.gif)
+![descrição do GIF](https://media1.tenor.com/m/2m6f6TiqUh8AAAAd/244.gif)
