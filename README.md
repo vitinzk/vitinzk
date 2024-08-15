@@ -11,4 +11,4 @@ vitor.moreno.silva@escola.pr.gov.br
 
 @vitinzk
 
-![descrição do GIF](https://media1.tenor.com/m/Klr5LKde1DUAAAAd/dirtbike-bike-life.gif)
+![descrição do GIF](https://media1.tenor.com/m/ZghsoGEIVx0AAAAd/bike-life.gif)
